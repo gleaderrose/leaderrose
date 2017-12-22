@@ -12,12 +12,12 @@ I live in Bed-Stuy with my girlfriend Aimee, who makes super cool leather stuff 
 
 Get at me
 
-[Soundcloud](https://soundcloud.com/cousingabriel)
-[Instagram](https://www.instagram.com/cousingabriel/)
-[Twitter](https://twitter.com/cousingabriel)
-[Facebook](https://www.facebook.com/public/Gabriel-Leader-Rose)
-[Linkedin](https://www.linkedin.com/in/gabriel-leader-rose-92807127)
-[Email](mailto:gleaderrose@gmail.com)
+<p>[Soundcloud](https://soundcloud.com/cousingabriel) </p
+<p>[Instagram](https://www.instagram.com/cousingabriel/)</p
+<p>[Twitter](https://twitter.com/cousingabriel)</p
+<p>[Facebook](https://www.facebook.com/public/Gabriel-Leader-Rose)</p
+<p>[Linkedin](https://www.linkedin.com/in/gabriel-leader-rose-92807127)</p
+<p>[Email](mailto:gleaderrose@gmail.com)</p
 
 
 
