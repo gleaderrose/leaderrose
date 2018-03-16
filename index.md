@@ -6,7 +6,7 @@ I produce hip-hop, R&B, and textural electronic music rooted in my background as
 
 I play bass and write original music for [Quarter Water](https://www.facebook.com/quarterwatermusic/), a hip-hop/ neosoul band based in Brooklyn, featuring rapper [Googie](https://www.facebook.com/GoogieGoHard/). You can find out about upcoming shows on our [Facebook](https://www.facebook.com/quarterwatermusic/) page. Our first demo is coming out soon. Stay tuned.
 
-I am teaching a product management course at General Assembly this March, and am sometimes available for freelance product management engagements. I've worked on a wide variety of physical and digital products at [Shapeways](https://www.shapeways.com/) and [Def Method](https://www.defmethod.com/).
+I teach product management General Assembly on occasion, and am sometimes available for freelance product management engagements. I've worked on a wide variety of physical and digital products at [Shapeways](https://www.shapeways.com/) and [Def Method](https://www.defmethod.com/).
 
 I live in Bed-Stuy with my girlfriend Aimee, who makes super cool leather stuff and runs [Phelan](https://www.thisisphelan.com/).
 
