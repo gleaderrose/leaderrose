@@ -1,6 +1,6 @@
 I'm a social entrepreneur, product manager, bassist, and music producer. 
 
-I cofounded [Good Call](www.goodcall.nyc) in October of 2016. We use technology to run a free 24/7 hotline that allows anyone to connect with a free lawyer right away, if they or a loved one get arrested. We're trying to make sure everyone can get the support they need to avoid getting unnecessarily wrapped up in the criminal justice system.
+I cofounded [Good Call](https://goodcall.nyc) in October of 2016. We use technology to run a free 24/7 hotline that allows anyone to connect with a free lawyer right away, if they or a loved one get arrested. We're trying to make sure everyone can get the support they need to avoid getting unnecessarily wrapped up in the criminal justice system.
 
 I produce hip-hop, R&B, and textural electronic music rooted in my background as a jazz upright bassist. I released my first EP Elements on [Beat Haus Records](http://www.beathausshow.com/) in 2016, which can be found on [Spotify](https://open.spotify.com/album/2dmybITq1IS3sY6umWr08y) or [Soundcloud](https://soundcloud.com/beathausshow/sets/cousin-gabriel-elements-ep). I'm always looking for new artists to collaborate with.
 
