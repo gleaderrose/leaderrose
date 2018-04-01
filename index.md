@@ -8,7 +8,7 @@ I play bass and write original music for [Quarter Water](https://www.facebook.co
 
 I teach product management [General Assembly](https://generalassemb.ly/) on occasion, and am sometimes available for freelance product management engagements. I've worked on a wide variety of physical and digital products at [Shapeways](https://www.shapeways.com/) and [Def Method](https://www.defmethod.com/).
 
-I live in Bed-Stuy with my girlfriend Aimee, who makes super cool leather stuff and runs [Phelan](https://www.thisisphelan.com/).
+I live in Clinton Hill with my girlfriend Aimee, who makes super cool leather stuff and runs [Phelan](https://www.thisisphelan.com/).
 
 Get at me
 
